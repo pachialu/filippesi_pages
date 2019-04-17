@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Lettera di Paolo ai Filippesi
-description: v.20190406
+description: v.20190416
 ---
 
 Questa lettera è stata scritta da Paolo di Tarso in una data compresa
