@@ -26,7 +26,7 @@ croce come un criminale.
 
 <sup>9-11</sup> Per questo Dio lo ha portato in alto e gli ha assegnato
 una posizione sopra chiunque di qualunque epoca, in modo che davanti a
-Gesù chiunque, in cielo, sulla terra o sotto la terra, debba piegare le
+Gesù, chiunque, in cielo, sulla terra o sotto la terra, debba piegare le
 ginocchia e portagli rispetto, e dichiarare che Gesù Cristo è il Capo,
 onorando così Dio Padre.
 
@@ -57,8 +57,8 @@ qui che come Timòteo vi pensa e si farebbe in quattro per voi. Gli altri
 si fanno i fatti propri, più che quelli di Gesù. Ma voi conoscete
 Timòteo: è stato come un figlio per me, e con me si è impegnato per
 diffondere il messaggio di Gesù. Spero di mandarvelo appena capisco come
-gira la situazione; e, per la fiducia che ho in Dio, spero di poter
-venire a trovarvi anch'io.
+vanno le cose; e, per la fiducia che ho in Dio, spero di poter venire a
+trovarvi anch'io.
 
 <sup>25-27</sup> Nel frattempo, ho pensato che fosse il caso di
 rimandarvi Epafrodìto. Voi me lo avevate mandato come messaggero e per

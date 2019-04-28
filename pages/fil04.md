@@ -20,12 +20,12 @@ scritti nel Libro della Vita<sup>[1)](#fn__1)</sup>.
 
 <sup>4-7</sup> Siate sempre felici di appartenere a Gesù\! Ve lo ripeto:
 siate sempre felici\! Tutti devono vedere la vostra bontà e la vostra
-dolcezza. Il Capo è vicino\! Non lasciatevi preoccupare da nessuna cosa,
-ma in ogni situazione rivolgetevi a Dio, chiedendogli quello di cui
-avete bisogno con la preghiera e la domanda, e ringraziando. Se fate
-questo, vivrete nella pace di Dio, che supera qualsiasi immaginazione
-umana. La sua pace proteggerà i vostri cuori e i vostri pensieri,
-tenendoli uniti a Gesù Cristo.
+dolcezza. Il Capo è vicino\! Non angosciatevi per le situazioni: per
+ogni problema rivolgetevi a Dio, chiedendogli quello di cui avete
+bisogno con la preghiera e la domanda, e ringraziando. Se fate questo,
+vivrete nella pace di Dio, che supera qualsiasi immaginazione umana. La
+sua pace proteggerà i vostri cuori e i vostri pensieri, tenendoli uniti
+a Gesù Cristo.
 
 <sup>8-9</sup> Cari fratelli e sorelle, concludo questa lettera
 dicendovi ancora una cosa: indirizzate i vostri pensieri a tutto quello
@@ -45,7 +45,7 @@ le situazioni. Ho vissuto con quasi niente ma anche nell'abbondanza. Ho
 imparato il segreto di accontentarmi della condizione in cui mi trovo,
 sia che abbia lo stomaco pieno o vuoto, sia nell'abbondanza che nella
 miseria. <sup>13-14</sup> Posso fare tutto ciò che Dio mi chiede, perché
-Gesù mi la dà forza. Comunque avete fatto bene ad aiutarmi in questa
+Gesù mi dà la forza. Comunque avete fatto bene ad aiutarmi in questa
 difficoltà.
 
 <sup>15-17</sup> Voi di Filippi lo sapete bene: da quando ho cominciato
@@ -72,7 +72,7 @@ sia col vostro spirito.
 
 ---------------------------------------
 
-<sup>[1)](#fnt__1)</sup> nella tradizione degli ebrei, il libro nel quale Dio registra i nomi
+<sup>[1)](#fnt__1)</sup> nella tradizione degli Ebrei, il libro nel quale Dio registra i nomi
 delle persone destinate al Paradiso
 
 ---------------------------------------

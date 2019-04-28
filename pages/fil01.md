@@ -2,15 +2,16 @@
 layout: page
 title: 1
 ---
-[<-indietro](fil00.html) [avanti ->](fil02.html)
+[<-indietro](index.html) [avanti ->](fil02.html)
 
 --------------------------------
 #### Saluti
 
-<sup>1-2</sup> Noi, Paolo e Timòteo, servi di Gesù il Protagonista,
-scriviamo questa lettera alle guide, agli aiutanti e a tutti i seguaci
-di Gesù della città di Filippi<sup>[1)](#fn__1)</sup>. Dio, nostro
-Padre, e Gesù Cristo il Capo vi diano benedizioni e pace.
+<sup>1-2</sup> Noi, Paolo e Timòteo, servi di Gesù il
+Protagonista<sup>[1)](#fn__1)</sup>, scriviamo questa lettera a tutti i
+seguaci di Gesù di Filippi<sup>[2)](#fn__2)</sup>, comprese le guide e
+gli aiutanti. Dio, nostro Padre, e Gesù Cristo il Capo vi diano
+benedizioni e pace.
 
 #### Quanto vi voglio bene
 
@@ -67,9 +68,9 @@ morire\!
 <sup>23-26</sup> Non so proprio cosa è meglio: da una parte vorrei
 lasciare questa vita per essere con il mio eroe, e sarebbe il massimo\!
 Dall'altra capisco che per voi è molto più utile che rimanga in vita.
-C'è ancora bisogno di me, perciò sono certo che resterò in vita ancora
-per un po', per aiutarvi a crescere e per vedere in voi la gioia che
-viene dalla fiducia. Così, quando tornerò di nuovo a trovarvi, sarete
+C'è ancora bisogno di me, perciò sono sicuro che resterò in vita ancora
+un po', per aiutarvi a crescere e per vedere in voi la gioia che viene
+dalla fiducia in Dio. Così, quando tornerò di nuovo a trovarvi, sarete
 contenti ed avrete una ragione di più per lodare Gesù Cristo che mi ha
 protetto.
 
@@ -86,7 +87,8 @@ stessa lotta che mi avete visto affrontare nel passato e, come ben
 sapete, ancora adesso.
 
 ---------------------------------------
-<sup>[1)](#fnt__1)</sup> una città sul mare al nord della Grecia
+<sup>[1)](#fnt__1)</sup> il Protagonista, detto anche Messia o Cristo, è il Salvatore inviato da Dio per riscattare gli Ebrei
+<sup>[2)](#fnt__2)</sup> una città sul mare al nord della Grecia
 
 ---------------------------------------
-[<-indietro](fil00.html) [avanti ->](fil02.html)
+[<-indietro](index.html) [avanti ->](fil02.html)

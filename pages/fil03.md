@@ -6,26 +6,33 @@ title: 3
 
 --------------------------------
 <sup>1</sup> Vada come vada, cari fratelli e sorelle, festeggiate con
-Dio\! Non mi stancherò mai di dirvelo ed anche a voi farà bene
-sentirvelo ripetere.
+Dio\! Non mi stancherò mai di dirvelo e anche a voi fa bene sentirvelo
+ripetere.
 
 #### Le cose che contano davvero
 
 <sup>2-3</sup> Fate attenzione ai lupi, come li chiamo io, che impongono
 di mutilarsi per essere salvati. La vera
-circoncisione<sup>[1)](#fn__1)</sup> è dei figli di Dio che adorano Dio
+circoncisione[^31] è dei figli di Dio che adorano Dio
 guidati da Spirito Santo, esaltando Gesù e non i propri meriti umani.
 
 <sup>4-6</sup> Vogliamo parlarne? Io ne ho da vendere\! Se qualcuno
 pensa di vantarsi dei propri meriti, sappia che io ne ho molti di più.
-Sono stato circonciso<sup>[2)](#fn__2)</sup> quando avevo otto giorni e
+Sono stato circonciso[^32] quando avevo otto giorni e
 sono un vero Ebreo, nato in una famiglia della tribù di Beniamino.
 Perciò, se c'è un Ebreo DOC, sono io\! Per di più, ero uno dei Farisei,
 e osservavo rigidamente tutte le regole e le tradizioni ebraiche; ero
 talmente fissato che ho perseguitato in tutti i modi i seguaci di Gesù.
 Non mi si poteva dire niente\!
 
-<sup>7-9</sup> Ma tutte queste cose, che prima erano così importanti, le considero solo un danno, da quando conosco Gesù. Anzi, vi dirò di più: considero qualsiasi altra cosa un danno rispetto al vantaggio immenso di conoscere Gesù il Protagonista, il mio Capo. Ho abbandonato tutto, considerandolo spazzatura, per poter avere Gesù e appartenere a lui. E sono a posto con Dio, non perché sono allineato alle regole di Mosè, ma perché mi affido a Gesù. Dio infatti ci azzera i debiti solo perché Gesù garantisce per noi.
+<sup>7-9</sup> Ma tutte queste cose, che prima erano così importanti, le
+considero solo un danno, da quando conosco Gesù. Anzi, vi dirò di più:
+considero qualsiasi altra cosa un danno rispetto al vantaggio immenso di
+conoscere Gesù il Protagonista, il mio Capo. Ho abbandonato tutto,
+considerandolo spazzatura, per poter avere Gesù e appartenere a lui. E
+sono a posto con Dio, non perché sono allineato alle regole di Mosè, ma
+perché mi affido a Gesù. Dio infatti ci azzera i debiti solo perché Gesù
+garantisce per noi.
 
 <sup>10-11</sup> Io voglio conoscere fino in fondo Gesù e la potenza
 della sua risurrezione. Voglio scoprire cosa significa soffrire e morire
